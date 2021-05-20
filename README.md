@@ -1,0 +1,1 @@
+Hello, I am Nath07an or Nathan. I enjoy coding. I am learning frontend development plus a bit of Python on the side. If you wish to contact me for whatever reason, you can reach out to me on Discord at Nath07an#0822
